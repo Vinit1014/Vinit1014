@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **vinit10dev@gmail.com**
 
-- 📄 Know about my experiences [Resume_link](https://drive.google.com/file/d/1v57mshkMtjHSrm_v6Cdva-oD9EM3u6ua/view?usp=sharing)
+- 📄 Know about my experiences [Resume_link](https://drive.google.com/file/d/1L5AzsGZiVt7gKLIyCpHfog2SzZagyVpK/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
